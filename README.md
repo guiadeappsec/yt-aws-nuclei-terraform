@@ -5,7 +5,7 @@ Olá! Eu sou o [Ben-Hur](https://www.linkedin.com/in/benhurott/) e este é um tu
 
 ## Explicação detalhada
 
-LINK_DO_VIDEO
+🎥 [Vídeo Youtube](https://youtu.be/nYYiB56xjTA)
 
 
 ## Links Gerais
